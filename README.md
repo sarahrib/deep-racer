@@ -2,6 +2,7 @@
 
 
 ## Melhor resultado pista 1
+![image](https://github.com/sarahrib/deep-racer/assets/99229740/21a681cc-fa3a-4a5b-809a-1e1c7d8a8455)
 
 
 
